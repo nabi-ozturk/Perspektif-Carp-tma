@@ -1,0 +1,2 @@
+# Perspektif Carpıtma
+ 
